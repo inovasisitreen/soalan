@@ -1,42 +1,69 @@
-• Bilakah tarikh kemerdekaan Tanah Melayu diisytiharkan?
-• Di manakah upacara pengisytiharan kemerdekaan diadakan?
-• Siapakah tokoh yang mengisytiharkan kemerdekaan Tanah Melayu?
-• Negara manakah yang menjajah Tanah Melayu sebelum merdeka?
-• Apakah nama stadium tempat laungan “Merdeka” dibuat?
-• Siapakah Yang di-Pertuan Agong pertama Malaysia?
-• Apakah maksud kemerdekaan kepada sesebuah negara?
-• Apakah nama perjanjian yang membawa kepada kemerdekaan Tanah Melayu?
-• Siapakah yang dikenali sebagai Bapa Kemerdekaan Malaysia?
-• Nyatakan dua sumbangan Tunku Abdul Rahman dalam mencapai kemerdekaan.
-• Siapakah tokoh wanita yang turut berjuang untuk kemerdekaan?
-• Apakah peranan Tun Tan Cheng Lock dalam perjuangan kemerdekaan?
-• Siapakah Tun V. T. Sambanthan?
-• Apakah peranan Parti Perikatan dalam mencapai kemerdekaan?
-• Apakah tujuan rombongan kemerdekaan ke London pada tahun 1956?
-• Apakah hasil rundingan kemerdekaan di London?
-• Apakah yang berlaku pada 31 Ogos 1957?
-• Apakah maksud laungan “Merdeka” sebanyak tujuh kali?
-• Apakah kepentingan kemerdekaan kepada rakyat?
-• Apakah perubahan yang berlaku selepas kemerdekaan dicapai?
-• Apakah tujuan rombongan kemerdekaan ke London pada tahun 1956?
-• Apakah hasil rundingan kemerdekaan di London?
-• Apakah yang berlaku pada 31 Ogos 1957?
-• Apakah maksud laungan “Merdeka” sebanyak tujuh kali?
-• Apakah kepentingan kemerdekaan kepada rakyat?
-• Apakah perubahan yang berlaku selepas kemerdekaan dicapai?
-• Bilakah Malaysia dibentuk?
-• Apakah negeri-negeri yang menyertai pembentukan Malaysia pada tahun 1963?
-• Apakah tujuan pembentukan Malaysia?
-• Apakah cabaran yang dihadapi semasa pembentukan Malaysia?
-• Negara manakah yang menentang pembentukan Malaysia pada awalnya?
-• Mengapakah kita perlu menghargai kemerdekaan negara?
-• Apakah peranan generasi muda dalam mengekalkan kemerdekaan?
-• Bagaimanakah rakyat boleh menunjukkan semangat patriotisme?
-• Mengapakah perpaduan penting selepas kemerdekaan?
-• Apakah pengajaran daripada perjuangan tokoh kemerdekaan?
-• Bagaimanakah kehidupan rakyat jika negara tidak mencapai kemerdekaan?
-• Pada pendapat anda, apakah ciri pemimpin yang diperlukan untuk memimpin negara?
-• Mengapakah perpaduan kaum penting dalam mempertahankan kemerdekaan?
-• Bagaimanakah teknologi boleh membantu menyemai semangat patriotisme?
-• Apakah langkah yang boleh dilakukan untuk mengekalkan keamanan negara?
-• Pada pendapat anda, apakah cara terbaik untuk menghargai jasa tokoh kemerdekaan?
+1  31 Ogos 1957 
+
+2 Stadium Merdeka, Kuala Lumpur
+
+ 3 Tunku Abdul Rahman 
+ 
+4 British
+
+ 5 Stadium Merdeka
+ 
+ 6 Tuanku Abdul Rahman ibni Almarhum Tuanku Muhammad  7 Negara bebas daripada penjajahan dan boleh mentadbir sendiri 
+ 
+8 Perjanjian Kemerdekaan 1957 
+
+9 Tunku Abdul Rahman 
+
+10 Memimpin rundingan kemerdekaan dan mengetuai rombongan ke London 
+
+11 Contoh: Ibu Zain (Zainon Munshi Sulaiman)
+
+12 Memimpin MCA dan bekerjasama dengan kaum lain untuk kemerdekaan
+
+13 Presiden MIC yang mewakili kaum India dalam perjuangan kemerdekaan
+
+14 Gabungan UMNO, MCA dan MIC untuk menuntut kemerdekaan
+
+15 Untuk berunding dengan British bagi mendapatkan kemerdekaan
+
+16 British bersetuju memberi kemerdekaan kepada Tanah Melayu
+
+17 Tanah Melayu diisytiharkan merdeka
+
+18 Melambangkan kebebasan negara daripada penjajahan
+
+19 Negara bebas mentadbir sendiri
+
+20 Negara dapat membangunkan ekonomi, pendidikan dan pentadbiran sendiri
+
+2116 September 1963
+
+22 Tanah Melayu, Sabah, Sarawak dan Singapura
+
+23 Menguatkan politik, ekonomi dan keselamatan
+
+24 Tentangan dari negara luar dan perbezaan politik
+
+25 Indonesia dan Filipina
+
+26 Supaya kita menghargai perjuangan tokoh terdahulu
+
+27 Menjaga keamanan dan perpaduan negara
+
+28 Menghormati bendera negara dan menyanyikan lagu kebangsaan
+
+29 Untuk mengekalkan keamanan negara
+
+30 Kita perlu bersatu padu dan berusaha mempertahankan negara
+
+31 Rakyat mungkin masih dijajah dan tidak bebas
+
+32 Berwibawa, jujur dan bertanggungjawab
+
+33 Untuk memastikan negara aman dan stabil
+
+34 Melalui media sosial, pendidikan dan kempen patriotik
+
+35 Menghormati undang-undang dan mengamalkan perpaduan
+
+36 Menghargai jasa tokoh kemerdekaan dan menjaga keamanan negara
