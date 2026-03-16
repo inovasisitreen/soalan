@@ -31,7 +31,7 @@ sejarah:
 15.Gabungan UMNO, MCA dan MIC untuk menuntut kemerdekaan
 
 16.   31 Ogos 1957
-17.    
+    
 17.Tunku Abdul Rahman
    
 18.Memastikan undang-undang negara dipatuhi oleh semua rakyat tanpa mengira latar belakang.
@@ -41,6 +41,9 @@ sejarah:
 20.Memimpin MCA dan bekerjasama dengan kaum lain untuk kemerdekaan
 
 21.Tunku Abdul Rahman
+
+
+
 
 sains:
 
@@ -83,6 +86,9 @@ sains:
 19.fotosintesis
 
 20.penyejatan
+
+
+
 
 geografi:
 
