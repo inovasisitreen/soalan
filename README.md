@@ -42,7 +42,85 @@ sejarah:
 
 21.Tunku Abdul Rahman
 
+sains:
 
+1. Pascal.
+ 
+2.termometer
+
+3.jantung
+
+4.kondensasi
+
+5.hubungan antara organisma dan persekitarannya 
+
+6.mengecilkan imej
+
+7.tenaga kimia
+
+8.oksigen
+
+9.Watt
+
+10.cahaya
+
+11.ginjal
+
+12.hemoglobin
+
+13 .7
+
+14.sel
+
+15.tembaga
+
+16.mempercepatkan tindak balas kimia
+
+17.hidrogen
+
+18.paru-paru
+
+19.fotosintesis
+
+20.penyejatan
+
+geografi:
+
+1.asia
+
+2.sungai rajang
+
+3.sabah
+
+4.lautan pasifik
+
+5.laut merah
+
+6.london
+
+7.indonesia
+
+8.mesir
+
+9.perancis
+
+10.australia
+
+11.bangkok
+
+12.thailand
+
+13.sungai nil
+
+14.seoul
+
+15.kuala lumpur
+
+16.gunung everest
+
+17.tokyo
+
+18.india
 
 
 
